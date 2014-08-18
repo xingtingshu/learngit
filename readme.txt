@@ -1,2 +1,1 @@
-真这么神奇？
-有没有这么吊？
+guo ran bu yao ying yu
